@@ -2,7 +2,7 @@
 ***
   <p> <b> do not interact </b> </p>
   - you harass people or are generally a mean/rude person
-  <p>- fakeclaimer / think everyone who says they have disorders like DID is faking </p>
- <p> - under 16 </p>
+ <p>- fakeclaimer / think everyone who says they have disorders like DID is faking </p>
+ <p>- under 16 </p>
 
 
