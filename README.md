@@ -1,1 +1,1 @@
-no proship/darkshippers. be normal
+be a normal person when interacting
