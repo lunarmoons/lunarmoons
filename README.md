@@ -1,1 +1,1 @@
-be a normal person when interacting
+DNI proship, lolisho & incest. be normal
