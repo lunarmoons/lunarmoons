@@ -1,2 +1,2 @@
-BYI I support contradictory labels (bi lesbians, lesboys, etc) & I'm fine with endogenic systems
-<p> DNI proship, lolisho & incest
+BYI - I support contradictory labels (bi lesbians, lesboys, etc) & I'm fine with endogenic systems
+<p> DNI - proship, lolisho, incest, transID, pro-paraphilia 
