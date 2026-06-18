@@ -9,16 +9,10 @@
 
 <img width="150" height="20" alt="tumblr_bee6c63ed1ff6a7053c5498a4f03de7b_73fc20f5_250" src="https://github.com/user-attachments/assets/3cf20a90-adf6-4b09-962e-d7b39ba8f2c8" /><img width="150" height="20" alt="tumblr_ce24571a59c01ecd50d0d5d7a5974d01_badc4e7c_250" src="https://github.com/user-attachments/assets/1fb4bf1a-e045-43b0-903e-7607a7b92923" /><img width="150" height="20" alt="tumblr_3c3efb357d3aeff33fe1688e89613402_70d3a8a9_250" src="https://github.com/user-attachments/assets/2b0f2cd7-2066-4e1e-a066-12058a83e025" /><img width="200" height="33" alt="tumblr_595052cb6d800aba2a15afed0abb6d7f_7faf3e54_250" src="https://github.com/user-attachments/assets/6181de98-7d66-4994-ad14-bf5c2c233492" />
 
-
-
-
-
-
 </b> <p> I support contradictory labels (bi lesbians, lesboys, etc) self diagnosis, dark topics being depicted in fiction, & endogenic systems
 <p> <b>I hide:</b> proship, lolisho, incest, transID, pro-paraphilia 
 <p> <b>please hide me if these apply to you. I'm not interested in discourse and wish to curate both of our spaces </p>
 </p>
 <img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" />
 
-[![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/collection/tracks)
 
