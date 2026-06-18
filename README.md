@@ -1,3 +1,5 @@
+I love: twisted wonderland, madoka magica, jjba, legend of zelda, half life, cookie run & toontown 
+
 </b> I support contradictory labels (bi lesbians, lesboys, etc) self diagnosis, dark topics being depicted in fiction, & endogenic systems
 
 <p></p> I hide: proship, lolisho, incest, transID, pro-paraphilia
