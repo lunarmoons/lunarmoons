@@ -1,5 +1,5 @@
 <img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" />
-<p> <b></b>fandoms:</b> twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
+<p> <b>fandoms:</b>twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
 <p> <b>more:</b> cute things, leopard print, pink, stuffed animals, fashion, sewing, opera, theatre, art, biology, chemistry, psychology, dissociative disorder research & treatment, cladistics, religion, oingo boingo, talking heads & more
 <p> i would love to talk to people who have common interests! i love meeting new people and making friends</p>
 <img width="150" height="20" alt="tumblr_e96469296a912ca8cd48404f18775338_5426865c_250" src="https://github.com/user-attachments/assets/25197877-bc4a-4df7-8fb0-e0ab36dc563e" /> <img width="150" height="20" alt="tumblr_c77431070077dfc0212348cce8012eb7_e223f1b1_250" src="https://github.com/user-attachments/assets/d9135204-fa1d-4a2f-8461-09941b9d1dc1" />
@@ -12,7 +12,7 @@
 
 
 </b> <p> I support contradictory labels (bi lesbians, lesboys, etc) self diagnosis, dark topics being depicted in fiction, & endogenic systems
-<p> I hide: proship, lolisho, incest, transID, pro-paraphilia 
+<p> <b>I hide:</b> proship, lolisho, incest, transID, pro-paraphilia 
 <p> <b>please hide me if these apply to you. I'm not interested in discourse and wish to curate both of our spaces </p>
 </p>
 <img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" />
