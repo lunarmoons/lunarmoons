@@ -2,9 +2,7 @@ fandoms: twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom 
 <p> more: cute things, fashion, sewing, opera, theatre, art, biology, chemistry, psychology, cladistics, religion & more
 <p> i would love to talk to people who have common interests! i love meeting new people and making friends</p>
 
-[<img width="150" [height](https://64.media.tumblr.com/e96469296a912ca8cd48404f18775338/f2cfbb13005d9928-f0/s250x400/5426865cbd7fb32f52e24fbe4be6c566c8ced2b4.gifv)="20" alt="image" src="https://github.com/user-attachments/assets/b74bf5e0-97b3-45e8-b26c-670154d003d5" />
-](https://64.media.tumblr.com/e96469296a912ca8cd48404f18775338/f2cfbb13005d9928-f0/s250x400/5426865cbd7fb32f52e24fbe4be6c566c8ced2b4.gifv)
-
+https://64.media.tumblr.com/e96469296a912ca8cd48404f18775338/f2cfbb13005d9928-f0/s250x400/5426865cbd7fb32f52e24fbe4be6c566c8ced2b4.gifv
 </b> I support contradictory labels (bi lesbians, lesboys, etc) self diagnosis, dark topics being depicted in fiction, & endogenic systems
 
 <p></p> I hide: proship, lolisho, incest, transID, pro-paraphilia
