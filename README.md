@@ -1,3 +1,4 @@
+<img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" />
 fandoms: twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
 <p> more: cute things, leopard print, pink, stuffed animals, fashion, sewing, opera, theatre, art, biology, chemistry, psychology, dissociative disorder research & treatment, cladistics, religion, oingo boingo, talking heads & more
 <p> i would love to talk to people who have common interests! i love meeting new people and making friends</p>
@@ -12,4 +13,5 @@ fandoms: twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom 
 <p> I hide: proship, lolisho, incest, transID, pro-paraphilia 
 <p> <b>please hide me if these apply to you. I'm not interested in discourse and wish to curate both of our spaces </p>
 </p>
+<img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" />
 
