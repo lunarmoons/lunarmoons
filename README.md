@@ -3,7 +3,6 @@ fandoms: twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom 
 <p> i would love to talk to people who have common interests! i love meeting new people and making friends</p>
 
 </b> <p> I support contradictory labels (bi lesbians, lesboys, etc) self diagnosis, dark topics being depicted in fiction, & endogenic systems
-!(my sticker)[https://64.media.tumblr.com/e96469296a912ca8cd48404f18775338/f2cfbb13005d9928-f0/s250x400/5426865cbd7fb32f52e24fbe4be6c566c8ced2b4.gifv]
-<p></p> I hide: proship, lolisho, incest, transID, pro-paraphilia
+{{ < tenor data_postid="8246706" data_aspect_ratio="1.43103" width="50%" url='https://tenor.com/view/anime-goku-dbz-dragon-ball-super-saiyan-gif-8246706' caption="Goku from Dragon Ball Z power up to 'super saiyin'" fallback="https://media.tenor.com/XfrqyR_-jzIAAAAC/anime-goku.gif" >}}<p></p> I hide: proship, lolisho, incest, transID, pro-paraphilia
 <p> <b>please hide me if these apply to you. I'm not interested in discourse and wish to curate both of our spaces </p>
 </p>
