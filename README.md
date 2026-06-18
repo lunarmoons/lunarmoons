@@ -1,4 +1,4 @@
-I love: twisted wonderland, madoka magica, jjba, legend of zelda, half life, cookie run & toontown 
+I love: twisted wonderland, madoka magica, jjba, legend of zelda, utdr, half life, cookie run, toontown & so much more
 <p> i would love to talk to people who have common interests! i love meeting new people and making friends</p>
 
 </b> I support contradictory labels (bi lesbians, lesboys, etc) self diagnosis, dark topics being depicted in fiction, & endogenic systems
