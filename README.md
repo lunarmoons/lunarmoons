@@ -1,4 +1,4 @@
-fandoms: twisted wonderland, madoka magica, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
+fandoms: twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
 <p> more: cute things, fashion, sewing, opera, theatre, art, biology, chemistry, psychology, cladistics, religion
 <p> i would love to talk to people who have common interests! i love meeting new people and making friends</p>
 
