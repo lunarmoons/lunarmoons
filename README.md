@@ -1,4 +1,3 @@
-[Everybody_Dance_Now_lyrics_by_CC_M_(getmp3.pro).mp3](https://github.com/user-attachments/files/29115733/Everybody_Dance_Now_lyrics_by_CC_M_.getmp3.pro.mp3)
 <img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" /><img width="88" height="103" alt="tumblr_3632e71249a24c9a1330bdf103e96c09_1b384162_100" src="https://github.com/user-attachments/assets/336f34ae-b5c3-48ee-8fce-fc3589d3f08a" />
 <p></p><b>fandoms:</b> twisted wonderland, mlp, madoka magica, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
 
@@ -18,4 +17,3 @@
 <img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" />
 
 
-[Link text](https://gabalpha.github.io/read-audio/?p=https://archive.org/serve/TimeTraxMD/01.%20Music%2000.mp3)
