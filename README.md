@@ -1,5 +1,5 @@
 <img width="640" height="40" alt="tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640" src="https://github.com/user-attachments/assets/2459b2a2-3805-40e4-afac-a7a8c6dc7280" /><img width="88" height="103" alt="tumblr_3632e71249a24c9a1330bdf103e96c09_1b384162_100" src="https://github.com/user-attachments/assets/336f34ae-b5c3-48ee-8fce-fc3589d3f08a" />
-<p></p><b>fandoms:</b> twisted wonderland, mlp, madoka magica, persona, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
+<p></p><b>fandoms:</b> PHIGHTING!, twisted wonderland, mlp, madoka magica, persona, jjba, legend of zelda, kingdom hearts, utdr, half life, cookie run, toontown & so much more
 
 <p> <b>more:</b> cute things, leopard print, pink, stuffed animals, fashion, sewing, opera, theatre, art, biology, chemistry, psychology, dissociative disorder research & treatment, cladistics, religion, oingo boingo, talking heads & more
 <p> i would love to talk to people who have common interests! i love meeting new people and making friends</p>
