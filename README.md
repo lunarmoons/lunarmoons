@@ -12,7 +12,7 @@
 <p>if this makes you uncomfortable, please hide me or not interact with me
 <p></p>  <img width="180" height="20" alt="tumblr_inline_n37h6260zc1qhwjx8540" src="https://github.com/user-attachments/assets/8440a56d-2d91-44d2-be53-a3bd7f8b401e" />
 
-<p> <b>I hide:</b> proship, lolisho, incest, dubcon, transID, pro-paraphilia & I hide freely
+<p> <p></p><b>I hide:</b> proship, lolisho, incest, dubcon, transID, pro-paraphilia & I hide freely
 <p> <b>please hide me if these apply to you. I'm not interested in discourse and wish to curate both of our spaces </p>
 <img width="180" height="20" alt="tumblr_inline_n37h6260zc1qhwjx8540" src="https://github.com/user-attachments/assets/b72579c3-c4bf-49d8-b3a8-8fe3f4170426" />
 
