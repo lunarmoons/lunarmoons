@@ -14,7 +14,7 @@
 
 <p> <b>I hide:</b> proship, lolisho, incest, dubcon, transID, pro-paraphilia & I hide freely
 <p> <b>please hide me if these apply to you. I'm not interested in discourse and wish to curate both of our spaces </p>
-  <img width="180" height="20" alt="tumblr_inline_n37h6260zc1qhwjx8540" src="https://github.com/user-attachments/assets/b72579c3-c4bf-49d8-b3a8-8fe3f4170426" />
+<c></c>  <img width="180" height="20" alt="tumblr_inline_n37h6260zc1qhwjx8540" src="https://github.com/user-attachments/assets/b72579c3-c4bf-49d8-b3a8-8fe3f4170426" />
 
 <p><p>please let me know I cross any boundaries or make you uncomfortable. if you have any problems, it can be discussed privately
 </p>
